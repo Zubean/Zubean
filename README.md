@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Zubean
 - 👀 I’m interested in video editing and designing
 - 🌱 I’m currently learning web development
-- 📫 How to reach me zubeenk1226@gmail.com
+- 📫 How to reach me zubeenk1226@gmail.com or www.linkedin.com/in/zubeen-khan-beanz
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can understand languages but can't read 😂
 
